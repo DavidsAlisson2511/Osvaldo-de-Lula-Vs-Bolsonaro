@@ -1,1 +1,1 @@
-# Osvaldo-de-Lula-Vs-Bolsonaro
+# Lula-Vs-Bolsonaro
